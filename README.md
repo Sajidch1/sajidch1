@@ -17,8 +17,6 @@
 
 - 📫 How to reach me **Contact on Linkedin**
 
-- 📄 Know about my experiences onupwork [https://www.upwork.com/freelancers/~0165e2bb037b5ad634](https://www.upwork.com/freelancers/~0165e2bb037b5ad634)
-
 - ⚡ Fun fact **I think im funny**
 
 <h3 align="left">Connect with me:</h3>
